@@ -1,1 +1,10 @@
 hi
+![1](https://github.com/PrinceBhakodiya/bcamitra/assets/126951135/f280763f-0896-47c6-a3b5-00323154249b)
+![6](https://github.com/PrinceBhakodiya/bcamitra/assets/126951135/84473dae-2150-4113-a836-0c755e87123e)
+![5](https://github.com/PrinceBhakodiya/bcamitra/assets/126951135/19ce542f-1841-4aa7-ad1b-59e1f7ce33cc)
+![4](https://github.com/PrinceBhakodiya/bcamitra/assets/126951135/f60f5cd2-42dd-415c-a53f-2bad1e62b9f9)
+![3](https://github.com/PrinceBhakodiya/bcamitra/assets/126951135/92d27689-9817-4abd-91b9-e1f32624cb29)
+![2](https://github.com/PrinceBhakodiya/bcamitra/assets/126951135/dc6d9541-81a4-4250-9e03-5aaec43954b7)
+![student](https://github.com/PrinceBhakodiya/bcamitra/assets/126951135/eae6fe61-dc74-4d64-bc0a-871dcee9457a)
+![report](https://github.com/PrinceBhakodiya/bcamitra/assets/126951135/0ae66c1c-c1df-4404-84dd-163bdbc1e93a)
+![logo](https://github.com/PrinceBhakodiya/bcamitra/assets/126951135/4224244e-ab97-4c90-b31a-d61534ac6227)
